@@ -7,3 +7,4 @@
 ![image](https://github.com/user-attachments/assets/de1c6776-8f5b-4c41-9b62-0465b4b2501b)
 # practica 4
 ![image](https://github.com/user-attachments/assets/f5351c84-aaab-47f0-9057-f97237568e54)
+# Profe junte las que tenian sentido que estuvieran juntas
